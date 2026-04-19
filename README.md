@@ -1,4 +1,4 @@
-![Image](https://github.com/user-attachments/assets/531551a6-e399-43a8-809f-7111a6024a10)
+(https://github.com/user-attachments/assets/531551a6-e399-43a8-809f-7111a6024a10)
 
 𐔌  ,,  ⋮ Ships INT  .ᐟ  ₊  ꒱
 
@@ -27,4 +27,4 @@ Ships DNI ⋮ IWC
 
 ᶻ 𝘇 𐰁 Crackships (INT) :: MediaMothBelle, MothBelle
 
-![Image](https://github.com/user-attachments/assets/768d4f36-f09f-4f9b-9794-7c97654368fa)
+(https://github.com/user-attachments/assets/768d4f36-f09f-4f9b-9794-7c97654368fa)
