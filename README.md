@@ -1,3 +1,5 @@
+<img width="720" height="785" alt="Image" src="https://github.com/user-attachments/assets/34b22bc7-8f34-4916-a427-785897d41b9a" />
+
 𐔌 ,, 🤍 ⋮ Ships INT .ᐟ ₊ ꒱
 
 ⋆˚ Pirates of the Caribbean :: Sparrangelica, Sparbossa, Speckett, Norribeth, Jack x Esmeralda, Davy Jones x Calypso, Beckett x Mercer, Giselle x Scarlett, Pintel x Ragetti, Captain Teague x Lawrence Norrington ⋆.˚
@@ -32,16 +34,12 @@
 
 ──── 🪼 ────
 
-ᶻ 𝘇 𐰁 Forsaken :: DoubleFedora, Guest 1337 x Daisy, Chance x ITrapped, Taph x Doomsekkar, AzureTime, 007n7 x Noli, John Doe x Jane Doe
+⋆˚ Forsaken :: DoubleFedora, Guest 1337 x Daisy, Chance x ITrapped, Taph x Doomsekkar, AzureTime, 007n7 x Noli, John Doe x Jane Doe ⋆.˚
 
 ──── 🪼 ────
 
-ᶻ 𝘇 𐰁 DNI :: Silco x Jinx, ValAngel, Alastor x Vaggie, Alastor x Husker, Lucifer x Charlie, Vox x the Angels, Alastor x Emily, Captain Jack Sparrow x Davy Jones, HolyGates, Alastor x Niffty, Lesbian characters x men, GuitarApple, StaticGuitar, Valentino x Abel
+⋆˚ Rarepairs (INT) :: SeductiveSmoke/VeroVal, StaticMothPop, StaticPop ⋆.˚
 
-ᶻ 𝘇 𐰁 IWC/IWEC :: Sparrabeth, Captain Jack Sparrow x Tia Dalma, StaticBelle, Stolitzø, RadioStatic, StaticApple, RadioRose, Baxter x Niffty, Jinx x Caitlyn, RadioBelle/Charlastor, MurderMedia, HuskerDust, Sparrington, Jayce x Viktor
+⋆˚ Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns ⋆.˚
 
-──── 🪼 ────
-
-ᶻ 𝘇 𐰁 Rarepairs (INT) :: SeductiveSmoke (Verosika x Valentino), StaticMothPop (VoxVal x Verosika), StaticPop (Vox x Verosika), Captain Edward Teague x Lawrence Norrington
-
-ᶻ 𝘇 𐰁 Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns
+<img width="720" height="919" alt="Image" src="https://github.com/user-attachments/assets/f2c2df9c-8881-4d49-97e3-b424a1636751" />
