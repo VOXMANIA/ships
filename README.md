@@ -38,6 +38,12 @@
 
 ──── 🪼 ────
 
+⋆˚ FNaF :: Willry, Fangle, Ballora x SpringTrap, Lolbit x Funtime Foxy, Clara x Vlad ⋆.˚
+
+⋆˚ DNI :: William x the CHILDREN/SOULS, William x his OWN CHILDREN ⋆.˚
+
+──── 🪼 ────
+
 ⋆˚ Rarepairs (INT) :: SeductiveSmoke/VeroVal, StaticMothPop, StaticPop ⋆.˚
 
 ⋆˚ Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns ⋆.˚
