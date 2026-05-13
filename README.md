@@ -24,11 +24,11 @@
 
 ──── 🪼 ────
 
-⋆˚ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia ⋆.˚
+⋆˚ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia, Velissa ⋆.˚
 
-⋆˚ IWC/IWEC :: StaticBelle, RadioStatic, StaticApple, RadioRose, Baxtiffty, RadioBelle, Serilith, Lucilith ⋆.˚
+⋆˚ IWC/IWEC :: StaticBelle, RadioStatic, StaticApple, RadioRose, Baxtiffty, RadioBelle, Serilith, Lucilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo ⋆.˚
 
-⋆˚ DNI :: ValAngel, RadioJoy, FallenRadio, Alastor x Husker, Lucifer x Charlie, Vox x the Angels ⋆.˚
+⋆˚ DNI :: ValAngel, RadioJoy, FallenRadio, Alastor x Husker, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, PolyVees ⋆.˚
 
 ──── 🪼 ────
 
