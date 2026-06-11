@@ -48,6 +48,12 @@
 
 ──── 🏳️‍🌈 ────
 
+⋆˚ Greek Mythology :: OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Cirmes, Circylla, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia ⋆.˚
+
+⋆˚ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera ⋆.˚
+
+──── 🏳️‍🌈 ────
+
 ⋆˚ Rarepairs (INT) :: SeductiveSmoke/VeroVal, StaticMothPop, StaticPop ⋆.˚
 
 ⋆˚ Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns ⋆.˚
