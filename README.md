@@ -56,6 +56,6 @@
 
 ⋆˚ Rarepairs (INT) :: SeductiveSmoke/VeroVal, StaticMothPop, StaticPop ⋆.˚
 
-⋆˚ Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns ⋆.˚
+⋆˚ Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns, RadioMoth ⋆.˚
 
 <img width="720" height="919" alt="Image" src="https://github.com/user-attachments/assets/f2c2df9c-8881-4d49-97e3-b424a1636751" />
