@@ -1,6 +1,6 @@
 <img width="720" height="785" alt="Image" src="https://github.com/user-attachments/assets/34b22bc7-8f34-4916-a427-785897d41b9a" />
 
-𐔌 🌹 ⋮ Ships INT .ᐟ ₊ ꒱
+⊹ ࣪ ﹏﹏﹏﹏𓊝﹏﹏﹏𓂁﹏﹏﹏⊹ ࣪ ˖
 
 ⋆˚ Pirates of the Caribbean :: Sparrangelica, Sparbossa, Norribeth, Jack x Esmeralda, Davy Jones x Calypso, Beckett x Mercer, Giselle x Scarlett, Pintel x Ragetti, Captain Teague x Lawrence Norrington ⋆.˚
 
@@ -10,7 +10,7 @@
 
 ⋆˚ DNIUF :: Speckett, Jamerina ⋆.˚
 
-──── 🏳️‍🌈 ────
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
 ⋆˚ Arcane | League of Legends :: Timebomb, Violyn, Jayce x Mel, Viktor x Skye, Silco x Vander ⋆.˚
 
@@ -18,7 +18,7 @@
 
 ⋆˚ DNI :: Silco x Jinx, Isha ships ⋆.˚
 
-──── 🏳️‍🌈 ────
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
 ⋆˚ Helluva Boss :: Loona x Bee, Millie x Moxxie, Verbie, Mayberry x Martha, Beelzebub x Vortex, AsmoFizz, KendraWire ⋆.˚
 
@@ -26,35 +26,41 @@
 
 ⋆˚ DNI :: Mammon x Fizz (will add more) ⋆.˚
 
-──── 🏳️‍🌈 ────
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
-⋆˚ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia, Velissa, CyberArt (Vincent x Human Valentino) ⋆.˚
+⋆˚ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia, Velissa, CyberArt (Vincent x Human Valentino), Lucilith ⋆.˚
 
-⋆˚ IWC/IWEC :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxtiffty, Serilith, Lucilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, AppleDust, AppleCider, StaticQueen ⋆.˚
+⋆˚ IWC/IWECUF/BF :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxtiffty, Serilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, AppleDust, AppleCider, StaticQueen, FashionBelle, StaticMothPop, VeroVal/SeductiveSmoke, VeroVel, VeroVox/StaticPop, StaticRose/CannibalShark, Rosilith ⋆.˚
 
-⋆˚ DNI :: ValAngel, RadioJoy, FallenRadio, Alastor x Husker, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, SEASON PolyVees ⋆.˚
+⋆˚ DNI :: ValAngel, RadioJoy, FallenRadio, Alastor x Husker, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, SEASON PolyVees, Vox x Abel ⋆.˚
 
-⋆˚ DNIUF :: RadioBelle ⋆.˚
+⋆˚ DNIUF/BF :: RadioBelle ⋆.˚
 
-──── 🏳️‍🌈 ────
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
 ⋆˚ Forsaken :: DoubleFedora, Guest 1337 x Daisy, Chance x ITrapped, Taph x Doomsekkar, AzureTime, 007n7 x Noli, John Doe x Jane Doe ⋆.˚
 
-──── 🏳️‍🌈 ────
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
 ⋆˚ FNaF :: Willry, Fangle, Ballora x SpringTrap, Lolbit x Funtime Foxy, Clara x Vlad ⋆.˚
 
 ⋆˚ DNI :: William x the CHILDREN/SOULS, William x his OWN CHILDREN ⋆.˚
 
-──── 🏳️‍🌈 ────
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
+
+⋆˚ TADC :: FunnyBunny, BunnyDoll, FunnyDoll, Caine x Moon, Kinger x Queenie, Zooble x Gangle, RibbitRabbit ⋆.˚
+
+⋆˚ IWC/IWEC :: BunnyTeeth, RoyalTeeth, GummiJester ⋆.˚
+
+⋆˚ DNI :: Jax x Zooble, Jax x Gangle, Kinger x the cast, Gangle x Caine ⋆.˚
+
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
 ⋆˚ Greek Mythology :: OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Cirmes, Circylla, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia ⋆.˚
 
 ⋆˚ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera ⋆.˚
 
-──── 🏳️‍🌈 ────
-
-⋆˚ Rarepairs (INT) :: SeductiveSmoke/VeroVal, StaticMothPop, StaticPop ⋆.˚
+︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶ ⏝ ︶
 
 ⋆˚ Crackships (INT) :: MediaMothBelle, MothBelle, RadioHorns, RadioMoth ⋆.˚
 
