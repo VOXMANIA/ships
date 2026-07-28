@@ -30,7 +30,7 @@
 
 ➜ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia, Velissa, CyberArt (Vincent x Human Valentino), Lucilith
 
-➜ IWC/IWECUF/BF :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxtiffty, Serilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, StaticQueen, StaticRose/CannibalShark, Rosilith, Seramilla
+➜ IWC/IWECUF/BF :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxtiffty, Serilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, StaticQueen, StaticRose/CannibalShark, Rosilith, Seramilla, RoseMoth
 
 ➜ DNI :: ValAngel, RadioJoy, FallenRadio, Alastor x Husker, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, SEASON PolyVees, Vox x Abel, StaticDust, StaticMothDust, AppleDust, AppleCider
 
@@ -58,7 +58,7 @@
 
 ➜ Greek Mythology :: OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Cirmes, Circylla, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia
 
-➜ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera
+➜ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera, Demeter x Zeus, Demeter x Persephone, Zeus x Persephone, Antinous x Penelope, Antinous x Odysseus, Telemachus x Hermes, Eurylochus x Zeus (+ more)
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
