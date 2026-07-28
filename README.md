@@ -20,25 +20,25 @@
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
-➜ Helluva Boss :: Loona x Bee, Millie x Moxxie, Verbie, Mayberry x Martha, Beelzebub x Vortex, AsmoFizz, KendraWire
+➜ Helluva Boss :: Loona x Bee, Millie x Moxxie, Verbie, Marthberry, TexBee, AsmoFizz, KendraWire, Strella
 
-➜ IWC/IWEC :: Stolitz, BlitzFizz, Loona x Vortex, Stolas x Vassago, Vassago x Andrealphus
+➜ IWC/IWEC :: Stolitz, BlitzFizz, Loona x Vortex, Stolago, Vassalphus
 
-➜ DNI :: Mammon x Fizzarolli Moxxie x Stolas, Millie x Stolas, Blitz x Loona, Asmodeus x Mammon, Lucifer x Stolas, Stella x Stolas, Stella x Andrealphus
+➜ DNI :: Mammon x Fizzarolli Moxxie x Stolas, Millie x Stolas, Blitz x Loona, Asmodeus x Mammon, Lucifer x Stolas, Stella x Stolas, Stella x Andrealphus, Chaz x Moxxie, Chaz x Millie, VeroBlitz
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
 ➜ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia, Velissa, CyberArt (Vincent x Human Valentino), Lucilith
 
-➜ IWC/IWECUF/BF :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxtiffty, Serilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, StaticQueen, StaticRose/CannibalShark, Rosilith, Seramilla, RoseMoth
+➜ IWC/IWEC :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxstabber, Serilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, StaticQueen, StaticRose/CannibalShark, Rosilith, Seramilla, RoseMoth, AngelicBallet, Charmily, Charlie's Angels (Chaggi x Emily), Charlie's Exorcists (Chaggi x Lute), PolyEden, Emilute, FallenWings, SparksDuo, StaticSilence
 
-➜ DNI :: ValAngel, RadioJoy, FallenRadio, Alastor x Husker, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, SEASON PolyVees, Vox x Abel, StaticDust, StaticMothDust, AppleDust, AppleCider
+➜ DNI :: ValAngel, RadioJoy, FallenRadio, Husklastor, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, SEASON PolyVees, Vox x Abel, StaticDust, StaticMothDust, AppleDust, AppleCider, Vaggi x men, Velvette x men, GuitarPrincess, Sera x Emily, Sera x men, SnakeApple
 
 ➜ DNIUF/BF :: RadioBelle
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
-➜ Forsaken :: DoubleFedora, Guest 1337 x Daisy, Chance x ITrapped, Taph x Doomsekkar, AzureTime, 007n7 x Noli, John Doe x Jane Doe
+➜ Forsaken :: DoubleFedora, Guest 1337 x Daisy, Chance x ITrapped, Taph x Doomsekkar, AzureTime, 007n7 x Noli, John Doe x Jane Doe, Mafioso x Eunoia
 
 ⊹ ࣪ ﹏﹏𓊝﹏﹏𓂁﹏﹏⊹ ࣪ ˖
 
