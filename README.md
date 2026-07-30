@@ -24,11 +24,13 @@
 
 ━━━━━༻🌊༺━━━━━
 
-➜ Helluva Boss :: Loona x Bee, Millie x Moxxie, Verbie, Marthberry, TexBee, AsmoFizz, KendraWire, Strella
+➜ . ʜᴇʟʟᴜᴠᴀ ʙᴏꜱꜱ . 🩸
 
-➜ IWC/IWEC :: Stolitz, BlitzFizz, Loona x Vortex, Stolago, Vassalphus
+ɪɴᴛ ♯ Loona x Bee, Millie x Moxxie, Verbie, Marthberry, TexBee, AsmoFizz, KendraWire, Strella
 
-➜ DNI :: Mammon x Fizzarolli Moxxie x Stolas, Millie x Stolas, Blitz x Loona, Asmodeus x Mammon, Lucifer x Stolas, Stella x Stolas, Stella x Andrealphus, Chaz x Moxxie, Chaz x Millie, VeroBlitz
+ɪᴡᴄ/ɪᴡᴇᴄ ♯ Stolitz, BlitzFizz, Loona x Vortex, Stolago, Vassalphus
+
+ᴅɴɪ ♯ Mammon x Fizzarolli Moxxie x Stolas, Millie x Stolas, Blitz x Loona, Asmodeus x Mammon, Lucifer x Stolas, Stella x Stolas, Stella x Andrealphus, Chaz x Moxxie, Chaz x Millie, VeroBlitz
 
 ━━━━━༻🌊༺━━━━━
 
