@@ -14,11 +14,13 @@
 
 ━━━━━༻🌊༺━━━━━
 
-➜ Arcane | League of Legends :: Timebomb, Violyn, Jayce x Mel, Viktor x Skye, Silco x Vander
+➜ . ᴀʀᴄᴀɴᴇ . 💣
 
-➜ IWC/IWEC :: Jayce x Viktor, Jinx x Caitlyn
+ɪɴᴛ ♯ ᴛɪᴍᴇʙᴏᴍʙ, ᴠɪᴏʟʏɴ, ᴊᴀʏᴄᴇ x ᴍᴇʟ, ᴠɪᴋᴛᴏʀ x ꜱᴋʏᴇ, ꜱɪʟᴄᴏ x ᴠᴀɴᴅᴇʀ
 
-➜ DNI :: Silco x Jinx, Isha ships
+ɪᴡᴄ/ɪᴡᴇᴄ ♯ ᴊᴀʏᴄᴇ x ᴠɪᴋᴛᴏʀ, ᴊɪɴx x ᴄᴀɪᴛʟʏɴ
+
+ᴅɴɪ ♯ ꜱɪʟᴄᴏ x ᴊɪɴx, ɪꜱʜᴀ ꜱʜɪᴘꜱ, ᴊɪɴx x ᴠɪ, ᴠɪ x ᴠᴀɴᴅᴇʀ, ᴊɪɴx x ᴠᴀɴᴅᴇʀ, ᴄʟᴀɢɢᴏʀ x ᴠᴀɴᴅᴇʀ, ᴍʏʟᴏ x ᴠᴀɴᴅᴇʀ, ᴇᴋᴋᴏ x ᴠᴀɴᴅᴇʀ, ꜱᴇᴠɪᴋᴀ x ꜱɪʟᴄᴏ, ᴇᴋᴋᴏ x ꜱɪʟᴄᴏ, ᴠɪ x ꜱɪʟᴄᴏ
 
 ━━━━━༻🌊༺━━━━━
 
