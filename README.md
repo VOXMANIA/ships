@@ -26,11 +26,11 @@
 
 ➜ . ʜᴇʟʟᴜᴠᴀ ʙᴏꜱꜱ . 🩸
 
-ɪɴᴛ ♯ Loona x Bee, Millie x Moxxie, Verbie, Marthberry, TexBee, AsmoFizz, KendraWire, Strella
+ɪɴᴛ ♯ ʟᴏᴏɴᴀ x ʙᴇᴇ, ᴍɪʟʟɪᴇ x ᴍᴏxxɪᴇ, ᴠᴇʀʙɪᴇ, ᴍᴀʀᴛʜʙᴇʀʀʏ, ᴛᴇxʙᴇᴇ, ᴀꜱᴍᴏꜰɪᴢᴢ, ᴋᴇɴᴅʀᴀᴡɪʀᴇ, ꜱᴛʀᴇʟʟᴀ
 
-ɪᴡᴄ/ɪᴡᴇᴄ ♯ Stolitz, BlitzFizz, Loona x Vortex, Stolago, Vassalphus
+ɪᴡᴄ/ɪᴡᴇᴄ ♯ ꜱᴛᴏʟɪᴛᴢ, ʙʟɪᴛᴢꜰɪᴢᴢ, ʟᴏᴏɴᴀ x ᴠᴏʀᴛᴇx, ꜱᴛᴏʟᴀɢᴏ, ᴠᴀꜱꜱᴀʟᴘʜᴜꜱ
 
-ᴅɴɪ ♯ Mammon x Fizzarolli Moxxie x Stolas, Millie x Stolas, Blitz x Loona, Asmodeus x Mammon, Lucifer x Stolas, Stella x Stolas, Stella x Andrealphus, Chaz x Moxxie, Chaz x Millie, VeroBlitz
+ᴅɴɪ ♯ ᴍᴀᴍᴍᴏɴ x ꜰɪᴢᴢᴀʀᴏʟʟɪ, ᴍᴏxxɪᴇ x ꜱᴛᴏʟᴀꜱ, ᴍɪʟʟɪᴇ x ꜱᴛᴏʟᴀꜱ, ʙʟɪᴛᴢ x ʟᴏᴏɴᴀ, ᴀꜱᴍᴏᴅᴇᴜꜱ x ᴍᴀᴍᴍᴏɴ, ʟᴜᴄɪꜰᴇʀ x ꜱᴛᴏʟᴀꜱ, ꜱᴛᴇʟʟᴀ x ꜱᴛᴏʟᴀꜱ, ꜱᴛᴇʟʟᴀ x ᴀɴᴅʀᴇᴀʟᴘʜᴜꜱ, ᴄʜᴀᴢ x ᴍᴏxxɪᴇ, ᴄʜᴀᴢ x ᴍɪʟʟɪᴇ, ᴠᴇʀᴏʙʟɪᴛᴢ
 
 ━━━━━༻🌊༺━━━━━
 
