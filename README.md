@@ -34,13 +34,15 @@
 
 ━━━━━༻🌊༺━━━━━
 
-➜ Hazbin Hotel :: <StaticMoth3, Chaggi, RadioSilence, GuitarSpear, Zestmilla, MurderMedia, Velissa, CyberArt (Vincent x Human Valentino), Lucilith
+➜ . ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ . 🏩
 
-➜ IWC/IWEC :: StaticBelle, RadioStatic, StaticApple, RadioApple, RadioRose, Baxstabber, Serilith, HuskerDust, PILOT PolyVees, Velmilla, ShepherdsHalo, MediaApple, StaticQueen, StaticRose/CannibalShark, Rosilith, Seramilla, RoseMoth, AngelicBallet, Charmily, Charlie's Angels (Chaggi x Emily), Charlie's Exorcists (Chaggi x Lute), PolyEden, Emilute, FallenWings, SparksDuo, StaticSilence
+ɪɴᴛ ♯ <ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ3, ᴄʜᴀɢɢɪ, ʀᴀᴅɪᴏꜱɪʟᴇɴᴄᴇ, ɢᴜɪᴛᴀʀꜱᴘᴇᴀʀ, ᴢᴇꜱᴛᴍɪʟʟᴀ, ᴍᴜʀᴅᴇʀᴍᴇᴅɪᴀ, ᴠᴇʟɪꜱꜱᴀ, ᴄʏʙᴇʀᴀʀᴛ (ᴠɪɴᴄᴇɴᴛ x ʜᴜᴍᴀɴ ᴠᴀʟᴇɴᴛɪɴᴏ), ʟᴜᴄɪʟɪᴛʜ, ꜱᴛᴀᴛɪᴄQᴜᴇᴇɴ, ʀᴀᴅɪᴏʀᴏꜱᴇ, ꜱᴛᴀᴛɪᴄʀᴏꜱᴇ/ᴄᴀɴɴɪʙᴀʟꜱʜᴀʀᴋ
 
-➜ DNI :: ValAngel, RadioJoy, FallenRadio, Husklastor, Lucifer x Charlie, Vox x the Angels, Valentino x Abel, HolyGates, StaticGuitar, GuitarApple, Alastor x Niffty, Vox x Baxter, SEASON PolyVees, Vox x Abel, StaticDust, StaticMothDust, AppleDust, AppleCider, Vaggi x men, Velvette x men, GuitarPrincess, Sera x Emily, Sera x men, SnakeApple
+ɪᴡᴄ/ɪᴡᴇᴄ ♯ ꜱᴛᴀᴛɪᴄʙᴇʟʟᴇ, ʀᴀᴅɪᴏꜱᴛᴀᴛɪᴄ, ꜱᴛᴀᴛɪᴄᴀᴘᴘʟᴇ, ʀᴀᴅɪᴏᴀᴘᴘʟᴇ, ʙᴀxꜱᴛᴀʙʙᴇʀ, ꜱᴇʀɪʟɪᴛʜ, ʜᴜꜱᴋᴇʀᴅᴜꜱᴛ, ᴠᴇʟᴍɪʟʟᴀ, ꜱʜᴇᴘʜᴇʀᴅꜱʜᴀʟᴏ, ᴍᴇᴅɪᴀᴀᴘᴘʟᴇ, ʀᴏꜱɪʟɪᴛʜ, ꜱᴇʀᴀᴍɪʟʟᴀ, ʀᴏꜱᴇᴍᴏᴛʜ, ᴀɴɢᴇʟɪᴄʙᴀʟʟᴇᴛ, ᴄʜᴀʀᴍɪʟʏ, ᴄʜᴀʀʟɪᴇ'ꜱ ᴀɴɢᴇʟꜱ (ᴄʜᴀɢɢɪ x ᴇᴍɪʟʏ), ᴄʜᴀʀʟɪᴇ'ꜱ ᴇxᴏʀᴄɪꜱᴛꜱ (ᴄʜᴀɢɢɪ x ʟᴜᴛᴇ), ᴘᴏʟʏᴇᴅᴇɴ, ᴇᴍɪʟᴜᴛᴇ, ꜰᴀʟʟᴇɴᴡɪɴɢꜱ, ꜱᴘᴀʀᴋꜱᴅᴜᴏ, ꜱᴛᴀᴛɪᴄꜱɪʟᴇɴᴄᴇ
 
-➜ DNIUF/BF :: RadioBelle
+ᴅɴɪ ♯ ᴠᴀʟᴀɴɢᴇʟ, ʀᴀᴅɪᴏᴊᴏʏ, ꜰᴀʟʟᴇɴʀᴀᴅɪᴏ, ʜᴜꜱᴋʟᴀꜱᴛᴏʀ, ʟᴜᴄɪꜰᴇʀ x ᴄʜᴀʀʟɪᴇ, ᴠᴏx x ᴛʜᴇ ᴀɴɢᴇʟꜱ, ᴠᴀʟᴇɴᴛɪɴᴏ x ᴀʙᴇʟ, ʜᴏʟʏɢᴀᴛᴇꜱ, ꜱᴛᴀᴛɪᴄɢᴜɪᴛᴀʀ, ɢᴜɪᴛᴀʀᴀᴘᴘʟᴇ, ᴀʟᴀꜱᴛᴏʀ x ɴɪꜰꜰᴛʏ, ᴠᴏx x ʙᴀxᴛᴇʀ, ᴘᴏʟʏᴠᴇᴇꜱ, ᴠᴏx x ᴀʙᴇʟ, ꜱᴛᴀᴛɪᴄᴅᴜꜱᴛ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜᴅᴜꜱᴛ, ᴀᴘᴘʟᴇᴅᴜꜱᴛ, ᴀᴘᴘʟᴇᴄɪᴅᴇʀ, ᴠᴀɢɢɪ x ᴍᴇɴ, ᴠᴇʟᴠᴇᴛᴛᴇ x ᴍᴇɴ, ɢᴜɪᴛᴀʀᴘʀɪɴᴄᴇꜱꜱ, ꜱᴇʀᴀ x ᴇᴍɪʟʏ, ꜱᴇʀᴀ x ᴍᴇɴ, ꜱɴᴀᴋᴇᴀᴘᴘʟᴇ, ᴠᴀʟᴇɴᴛɪɴᴏ x ꜱᴛ. ᴘᴇᴛᴇʀ, ᴠᴏx x ꜱᴛ. ᴘᴇᴛᴇʀ, ʟɪʟɪᴛʜ x ᴄʜᴀʀʟɪᴇ
+
+ᴅɴɪᴜꜰ/ʙꜰ ♯ ʀᴀᴅɪᴏʙᴇʟʟᴇ
 
 ━━━━━༻🌊༺━━━━━
 
@@ -48,9 +50,11 @@
 
 ━━━━━༻🌊༺━━━━━
 
-➜ FNaF :: Willry, Fangle, Ballora x SpringTrap, Lolbit x Funtime Foxy, Clara x Vlad
+ɪɴᴛ ♯ Willry, Fangle, Ballora x SpringTrap, Lolbit x Funtime Foxy, Clara x Vlad
 
-➜ DNI :: William x the CHILDREN/SOULS, William x his OWN CHILDREN
+ɪᴡᴄ/ɪᴡᴇᴄ ♯ William x Mrs. Afton
+
+ᴅɴɪ ♯ William x Michael, William x Elizabeth, William x CC, William x Cassidy, William x Charlie Emily, William x the souls, Nightmare x Nightmare Fredbear x CC, Michael x Elizabeth, Michael x CC, Michael x Ennard, Circus Baby x Ennard, Michael x "Noah," Elizabeth x "Noah"
 
 ━━━━━༻🌊༺━━━━━
 
