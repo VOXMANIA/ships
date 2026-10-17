@@ -36,11 +36,11 @@
 
 ╭⊰  🏤 𝄪 ʜᴀᴢʙɪɴ ʜᴏᴛᴇʟ  ⊱╮
 
-ɪɴᴛ﹕<ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ3, ᴄʜᴀɢɢɪ, ʀᴀᴅɪᴏꜱɪʟᴇɴᴄᴇ, ɢᴜɪᴛᴀʀꜱᴘᴇᴀʀ, ᴢᴇꜱᴛᴍɪʟʟᴀ, ᴍᴜʀᴅᴇʀᴍᴇᴅɪᴀ, ᴠᴇʟɪꜱꜱᴀ, ᴄʏʙᴇʀᴀʀᴛ (ᴠɪɴᴄᴇɴᴛ x ʜᴜᴍᴀɴ ᴠᴀʟᴇɴᴛɪɴᴏ), ʟᴜᴄɪʟɪᴛʜ, ꜱᴛᴀᴛɪᴄQᴜᴇᴇɴ, ʀᴀᴅɪᴏʀᴏꜱᴇ, ꜱᴛᴀᴛɪᴄʀᴏꜱᴇ/ᴄᴀɴɴɪʙᴀʟꜱʜᴀʀᴋ
+ɪɴᴛ﹕<ꜱᴛᴀᴛɪᴄᴍᴏᴛʜ3, ᴄʜᴀɢɢɪ, ʀᴀᴅɪᴏꜱɪʟᴇɴᴄᴇ, ᴍᴜʀᴅᴇʀᴍᴇᴅɪᴀ, ᴄʏʙᴇʀᴀʀᴛ (ᴠɪɴᴄᴇɴᴛ x ʜᴜᴍᴀɴ ᴠᴀʟᴇɴᴛɪɴᴏ), ʟᴜᴄɪʟɪᴛʜ, ꜱᴛᴀᴛɪᴄQᴜᴇᴇɴ, ʀᴀᴅɪᴏʀᴏꜱᴇ, ꜱᴛᴀᴛɪᴄʀᴏꜱᴇ/ᴄᴀɴɴɪʙᴀʟꜱʜᴀʀᴋ, ʀᴀᴅɪᴏQᴜᴇᴇɴ, ꜰᴀʟʟᴇɴᴡɪɴɢꜱ, ꜱᴘᴀʀᴋꜱᴅᴜᴏ, ᴇᴍɪʟᴜᴛᴇ, ʀᴏꜱᴇᴍᴏᴛʜ, ᴍᴇᴅɪᴀᴍᴏᴛʜʙᴇʟʟᴇ, ᴍᴏᴛʜʙᴇʟʟᴇ, ʀᴀᴅɪᴏᴍᴏᴛʜ, ꜱᴇᴅᴜᴄᴛɪᴠᴇꜱᴍᴏᴋᴇ, ꜱᴛᴀᴛɪᴄᴘᴏᴘ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜᴘᴏᴘ
 
-ɪᴡᴄ/ɪᴡᴇᴄ﹕ꜱᴛᴀᴛɪᴄʙᴇʟʟᴇ, ʀᴀᴅɪᴏꜱᴛᴀᴛɪᴄ, ꜱᴛᴀᴛɪᴄᴀᴘᴘʟᴇ, ʀᴀᴅɪᴏᴀᴘᴘʟᴇ, ʙᴀxꜱᴛᴀʙʙᴇʀ, ꜱᴇʀɪʟɪᴛʜ, ʜᴜꜱᴋᴇʀᴅᴜꜱᴛ, ᴠᴇʟᴍɪʟʟᴀ, ꜱʜᴇᴘʜᴇʀᴅꜱʜᴀʟᴏ, ᴍᴇᴅɪᴀᴀᴘᴘʟᴇ, ʀᴏꜱɪʟɪᴛʜ, ꜱᴇʀᴀᴍɪʟʟᴀ, ʀᴏꜱᴇᴍᴏᴛʜ, ᴀɴɢᴇʟɪᴄʙᴀʟʟᴇᴛ, ᴄʜᴀʀᴍɪʟʏ, ᴄʜᴀʀʟɪᴇ'ꜱ ᴀɴɢᴇʟꜱ (ᴄʜᴀɢɢɪ x ᴇᴍɪʟʏ), ᴄʜᴀʀʟɪᴇ'ꜱ ᴇxᴏʀᴄɪꜱᴛꜱ (ᴄʜᴀɢɢɪ x ʟᴜᴛᴇ), ᴘᴏʟʏᴇᴅᴇɴ, ᴇᴍɪʟᴜᴛᴇ, ꜰᴀʟʟᴇɴᴡɪɴɢꜱ, ꜱᴘᴀʀᴋꜱᴅᴜᴏ, ꜱᴛᴀᴛɪᴄꜱɪʟᴇɴᴄᴇ
+ɪᴡᴄ/ɪᴡᴇᴄ﹕ꜱᴛᴀᴛɪᴄʙᴇʟʟᴇ, ɢᴜɪᴛᴀʀꜱᴘᴇᴀʀ, ᴢᴇꜱᴛᴍɪʟʟᴀ, ꜱᴛᴀᴛɪᴄᴀᴘᴘʟᴇ, ʀᴀᴅɪᴏᴀᴘᴘʟᴇ, ʙᴀxꜱᴛᴀʙʙᴇʀ, ꜱᴇʀɪʟɪᴛʜ, ʜᴜꜱᴋᴇʀᴅᴜꜱᴛ, ᴠᴇʟᴍɪʟʟᴀ, ꜱʜᴇᴘʜᴇʀᴅꜱʜᴀʟᴏ, ᴍᴇᴅɪᴀᴀᴘᴘʟᴇ, ʀᴏꜱɪʟɪᴛʜ, ꜱᴇʀᴀᴍɪʟʟᴀ, ᴀɴɢᴇʟɪᴄʙᴀʟʟᴇᴛ, ᴄʜᴀʀᴍɪʟʏ, ᴄʜᴀʀʟɪᴇ'ꜱ ᴀɴɢᴇʟꜱ (ᴄʜᴀɢɢɪ x ᴇᴍɪʟʏ), ᴄʜᴀʀʟɪᴇ'ꜱ ᴇxᴏʀᴄɪꜱᴛꜱ (ᴄʜᴀɢɢɪ x ʟᴜᴛᴇ), ᴘᴏʟʏᴇᴅᴇɴ, ᴀꜱᴍᴏᴠᴀʟ
 
-ᴅɴɪ﹕ᴠᴀʟᴀɴɢᴇʟ, ʀᴀᴅɪᴏᴊᴏʏ, ꜰᴀʟʟᴇɴʀᴀᴅɪᴏ, ʜᴜꜱᴋʟᴀꜱᴛᴏʀ, ʟᴜᴄɪꜰᴇʀ x ᴄʜᴀʀʟɪᴇ, ᴠᴏx x ᴛʜᴇ ᴀɴɢᴇʟꜱ, ᴠᴀʟᴇɴᴛɪɴᴏ x ᴀʙᴇʟ, ʜᴏʟʏɢᴀᴛᴇꜱ, ꜱᴛᴀᴛɪᴄɢᴜɪᴛᴀʀ, ɢᴜɪᴛᴀʀᴀᴘᴘʟᴇ, ᴀʟᴀꜱᴛᴏʀ x ɴɪꜰꜰᴛʏ, ᴠᴏx x ʙᴀxᴛᴇʀ, ᴘᴏʟʏᴠᴇᴇꜱ, ᴠᴏx x ᴀʙᴇʟ, ꜱᴛᴀᴛɪᴄᴅᴜꜱᴛ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜᴅᴜꜱᴛ, ᴀᴘᴘʟᴇᴅᴜꜱᴛ, ᴀᴘᴘʟᴇᴄɪᴅᴇʀ, ᴠᴀɢɢɪ x ᴍᴇɴ, ᴠᴇʟᴠᴇᴛᴛᴇ x ᴍᴇɴ, ɢᴜɪᴛᴀʀᴘʀɪɴᴄᴇꜱꜱ, ꜱᴇʀᴀ x ᴇᴍɪʟʏ, ꜱᴇʀᴀ x ᴍᴇɴ, ꜱɴᴀᴋᴇᴀᴘᴘʟᴇ, ᴠᴀʟᴇɴᴛɪɴᴏ x ꜱᴛ. ᴘᴇᴛᴇʀ, ᴠᴏx x ꜱᴛ. ᴘᴇᴛᴇʀ, ʟɪʟɪᴛʜ x ᴄʜᴀʀʟɪᴇ
+ᴅɴɪ﹕ᴠᴀʟᴀɴɢᴇʟ, ʀᴀᴅɪᴏꜱᴛᴀᴛɪᴄ, ʀᴀᴅɪᴏᴊᴏʏ, ꜱᴛᴀᴛɪᴄꜱɪʟᴇɴᴄᴇ, ꜰᴀʟʟᴇɴʀᴀᴅɪᴏ, ʜᴜꜱᴋʟᴀꜱᴛᴏʀ, ᴠᴇʟɪꜱꜱᴀ, ʟᴜᴄɪꜰᴇʀ x ᴄʜᴀʀʟɪᴇ, ᴠᴏx x ᴛʜᴇ ᴀɴɢᴇʟꜱ, ᴠᴀʟᴇɴᴛɪɴᴏ x ᴀʙᴇʟ, ʜᴏʟʏɢᴀᴛᴇꜱ, ꜱᴛᴀᴛɪᴄɢᴜɪᴛᴀʀ, ɢᴜɪᴛᴀʀᴀᴘᴘʟᴇ, ᴀʟᴀꜱᴛᴏʀ x ɴɪꜰꜰᴛʏ, ᴠᴏx x ʙᴀxᴛᴇʀ, ᴘᴏʟʏᴠᴇᴇꜱ, ᴠᴏx x ᴀʙᴇʟ, ꜱᴛᴀᴛɪᴄᴅᴜꜱᴛ, ꜱᴛᴀᴛɪᴄᴍᴏᴛʜᴅᴜꜱᴛ, ᴀᴘᴘʟᴇᴅᴜꜱᴛ, ᴀᴘᴘʟᴇᴄɪᴅᴇʀ, ᴠᴀɢɢɪ x ᴍᴇɴ, ᴠᴇʟᴠᴇᴛᴛᴇ x ᴍᴇɴ, ɢᴜɪᴛᴀʀᴘʀɪɴᴄᴇꜱꜱ, ꜱᴇʀᴀ x ᴇᴍɪʟʏ, ꜱᴇʀᴀ x ᴍᴇɴ, ꜱɴᴀᴋᴇᴀᴘᴘʟᴇ, ᴠᴀʟᴇɴᴛɪɴᴏ x ꜱᴛ. ᴘᴇᴛᴇʀ, ᴠᴏx x ꜱᴛ. ᴘᴇᴛᴇʀ, ʟɪʟɪᴛʜ x ᴄʜᴀʀʟɪᴇ
 
 ᴅɴɪᴜꜰ/ʙꜰ﹕ʀᴀᴅɪᴏʙᴇʟʟᴇ
 
@@ -68,13 +68,7 @@
 
 ➜ Greek Mythology :: OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Cirmes, Circylla, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia
 
-➜ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera, Demeter x Zeus, Demeter x Persephone, Zeus x Persephone, Antinous x Penelope, Antinous x Odysseus, Telemachus x Hermes, Eurylochus x Zeus (+ more)
-
-━━━━⊱🏛⊰━━━━
-
-➜ Crackships (INT) :: MediaMothBelle, MothBelle, RadioMoth
-
-➜ Crossover ships (INT) :: Asmodeus x Valentino, VeroVal/SeductiveSmoke, VeroVel/FashionPop, VeroVox/StaticPop, StaticMothPop
+➜ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera, Demeter x Zeus, Demeter x Persephone, Zeus x Persephone, Antinous x Penelope, Antinous x Odysseus, Telemachus x Hermes, Eurylochus x Zeus
 
 ══════════════════
 
