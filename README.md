@@ -76,11 +76,13 @@
 
 ━━━━⊱🏛⊰━━━━
 
-ɪɴᴛ﹕OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Circmes, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia
+╭⊰  🍃 𝄪 ɢʀᴇᴇᴋ ᴍʏᴛʜᴏʟᴏɢʏ  ⊱╮
+
+ɪɴᴛ﹕ᴏᴅʏᴘᴇɴ, ᴄɪʀᴄᴘᴇɴ, ᴀᴍᴘʜɪꜱɪᴅᴏɴ, ᴢᴇᴜꜱ x ʜᴇʀᴀ, ᴀʀɪᴀᴅɴʏꜱᴜꜱ, ᴄɪʀᴄᴍᴇꜱ, ʜᴇʀᴀ x ɪʀɪꜱ, ᴘᴀʟʟᴛʜᴇɴᴀ, ᴇᴜʀʏᴘʜᴇᴜꜱ, ᴄᴀʟʟɪꜱᴛᴏ x ᴀʀᴛᴇᴍɪꜱ, ʜᴇʟᴄᴀꜱꜱ, ᴀᴘʜʀᴏᴀʀᴇꜱ, ᴀᴘʜʀᴏᴛʜᴇɴᴀ, ᴍᴇɴᴇʟᴇɴ, ᴘꜱᴀʟᴀᴋᴀɴᴛʜᴀ x ᴀʀɪᴀᴅɴᴇ x ᴅɪᴏɴʏꜱᴜꜱ, ᴘᴇʀꜱᴇᴘʜᴏɴʏx, ᴘᴇʀꜱᴇʜᴀᴅᴇɴʏx, ᴛᴇʟᴇɴᴀᴜꜱɪᴄᴀᴀ, ᴘᴀᴛʀᴏᴄʜɪʟʟᴇꜱ, ᴍᴇʟɪɴᴏë x ꜱᴄʏʟʟᴀ (ʜᴀᴅᴇꜱ), ᴘᴇʀꜱᴇʜᴀᴅᴇꜱ, ᴘꜱʏᴄʜᴇ x ᴇʀᴏꜱ, ᴅᴇɪᴅᴀᴍᴀ x ᴘʜʏʀʀᴀ, ᴘᴇʟᴏᴘꜱ x ʜɪᴘᴘᴏᴅᴀᴍɪᴀ
 
 ɪᴡᴄ/ɪᴡᴇᴄ﹕?
 
-ᴅɴɪ﹕Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera, Demeter x Zeus, Demeter x Persephone, Zeus x Persephone, Antinous x Penelope, Antinous x Odysseus, Telemachus x Hermes, Eurylochus x Zeus
+ᴅɴɪ﹕ʜᴇʀᴍᴇꜱ x ᴀʀᴇꜱ, ᴘᴏꜱᴇɪᴅᴏɴ x ʜᴇʀᴀ, ꜱʜᴀʀᴘᴡᴏʟꜰ, ᴛʜᴇꜱᴇᴜꜱ x ᴀʀɪᴀᴅɴᴇ, ᴄɪʀᴄᴏᴅʏ, ᴄᴀʟʏᴏᴅʏ, ɢᴀɴʏᴍᴇᴅᴇꜱ x ᴢᴇᴜꜱ, ɢᴀɴʏᴍᴇᴅᴇꜱ x ᴀɴʏᴏɴᴇ, ʜᴀᴅᴇꜱ x ᴅᴇᴍᴇᴛᴇʀ, ᴀᴛʜᴇɴᴀ x ʜᴇᴘʜᴇᴀꜱᴛᴜꜱ, ᴀᴛʜᴇɴᴀ x ʜᴇʀᴀ, ᴅᴇᴍᴇᴛᴇʀ x ᴢᴇᴜꜱ, ᴅᴇᴍᴇᴛᴇʀ x ᴘᴇʀꜱᴇᴘʜᴏɴᴇ, ᴢᴇᴜꜱ x ᴘᴇʀꜱᴇᴘʜᴏɴᴇ, ᴀɴᴛɪɴᴏᴜꜱ x ᴘᴇɴᴇʟᴏᴘᴇ, ᴀɴᴛɪɴᴏᴜꜱ x ᴏᴅʏꜱꜱᴇᴜꜱ, ᴛᴇʟᴇᴍᴀᴄʜᴜꜱ x ʜᴇʀᴍᴇꜱ, ᴇᴜʀʏʟᴏᴄʜᴜꜱ x ᴢᴇᴜꜱ
 
 ══════════════════
 
