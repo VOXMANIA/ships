@@ -26,7 +26,7 @@
 
 ╭⊰  😈 𝄪 ʜᴇʟʟᴜᴠᴀ ʙᴏꜱꜱ  ⊱╮
 
-ɪɴᴛ﹕ꜱᴛᴏʟᴀɢᴏ, ʟᴏᴏɴᴀ x ʙᴇᴇ, ᴍɪʟʟɪᴇ x ᴍᴏxxɪᴇ, ᴠᴇʀʙɪᴇ, ᴍᴀʀᴛʜʙᴇʀʀʏ, ᴛᴇxʙᴇᴇ, ᴀꜱᴍᴏꜰɪᴢᴢ, ᴋᴇɴᴅʀᴀᴡɪʀᴇ, ꜱᴛʀᴇʟʟᴀ
+ɪɴᴛ﹕ꜱᴛᴏʟᴀɢᴏ, ʟᴏᴏɴᴀ x ʙᴇᴇ, ᴍɪʟʟɪᴇ x ᴍᴏxxɪᴇ, ᴠᴇʀʙɪᴇ, ᴍᴀʀᴛʜʙᴇʀʀʏ, ᴛᴇxʙᴇᴇ, ᴀꜱᴍᴏꜰɪᴢᴢ, ᴋᴇɴᴅʀᴀᴡɪʀᴇ, ꜱᴛʀᴇʟʟᴀ, ꜱᴀʟʟɪᴇ ᴍᴀᴇ x ᴡɪʟʟᴏᴡ
 
 ɪᴡᴄ/ɪᴡᴇᴄ﹕ʙʟɪᴛᴢꜰɪᴢᴢ, ʟᴏᴏɴᴀ x ᴠᴏʀᴛᴇx, ᴠᴀꜱꜱᴀʟᴘʜᴜꜱ
 
@@ -56,25 +56,29 @@
 
 ━━━━⊱🏛⊰━━━━
 
-ɪɴᴛ ♯ Willry, Fangle, Ballora x SpringTrap, Lolbit x Funtime Foxy, Clara x Vlad
+╭⊰  🐻 𝄪 ꜰɴᴀꜰ  ⊱╮
 
-ɪᴡᴄ/ɪᴡᴇᴄ ♯ William x Mrs. Afton
+ɪɴᴛ﹕ᴡɪʟʟʀʏ, ꜰᴀɴɢʟᴇ, ʙᴀʟʟᴏʀᴀ x ꜱᴘʀɪɴɢᴛʀᴀᴘ, ʟᴏʟʙɪᴛ x ꜰᴜɴᴛɪᴍᴇ ꜰᴏxʏ, ᴄʟᴀʀᴀ x ᴠʟᴀᴅ
 
-ᴅɴɪ ♯ William x Michael, William x Elizabeth, William x CC, William x Cassidy, William x Charlie Emily, William x the souls, Nightmare x Nightmare Fredbear x CC, Michael x Elizabeth, Michael x CC, Michael x Ennard, Circus Baby x Ennard, Michael x "Noah," Elizabeth x "Noah"
+ɪᴡᴄ/ɪᴡᴇᴄ﹕ᴡɪʟʟɪᴀᴍ x ᴍʀꜱ. ᴀꜰᴛᴏɴ
 
-━━━━⊱🏛⊰━━━━
-
-➜ TADC :: FunnyBunny, Caine x Moon, Kinger x Queenie, Zooble x Gangle, RibbitRabbit
-
-➜ IWC/IWEC :: BunnyTeeth, RoyalTeeth, GummiJester, FunnyDoll, BunnyDoll
-
-➜ DNI :: Jax x Zooble, Jax x Gangle, Kinger x the cast, Caine x the cast
+ᴅɴɪ﹕ᴡɪʟʟɪᴀᴍ x ᴍɪᴄʜᴀᴇʟ, ᴡɪʟʟɪᴀᴍ x ᴇʟɪᴢᴀʙᴇᴛʜ, ᴡɪʟʟɪᴀᴍ x ᴄᴄ, ᴡɪʟʟɪᴀᴍ x ᴄᴀꜱꜱɪᴅʏ, ᴡɪʟʟɪᴀᴍ x ᴄʜᴀʀʟɪᴇ ᴇᴍɪʟʏ, ᴡɪʟʟɪᴀᴍ x ᴛʜᴇ ꜱᴏᴜʟꜱ, ɴɪɢʜᴛᴍᴀʀᴇ x ɴɪɢʜᴛᴍᴀʀᴇ ꜰʀᴇᴅʙᴇᴀʀ x ᴄᴄ, ᴍɪᴄʜᴀᴇʟ x ᴇʟɪᴢᴀʙᴇᴛʜ, ᴍɪᴄʜᴀᴇʟ x ᴄᴄ, ᴍɪᴄʜᴀᴇʟ x ᴇɴɴᴀʀᴅ, ᴄɪʀᴄᴜꜱ ʙᴀʙʏ x ᴇɴɴᴀʀᴅ, ᴍɪᴄʜᴀᴇʟ x "ɴᴏᴀʜ," ᴇʟɪᴢᴀʙᴇᴛʜ x "ɴᴏᴀʜ," ᴄɪʀᴄᴜꜱ ʙᴀʙʏ x ʙᴀʟʟᴏʀᴀ, ᴄɪʀᴄᴜꜱ ʙᴀʙʏ x ꜱᴘʀɪɴɢᴛʀᴀᴘ
 
 ━━━━⊱🏛⊰━━━━
 
-➜ Greek Mythology :: OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Cirmes, Circylla, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia
+ɪɴᴛ﹕FunnyBunny, Caine x Moon, Kinger x Queenie, Zooble x Gangle, RibbitRabbit
 
-➜ DNI :: Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera, Demeter x Zeus, Demeter x Persephone, Zeus x Persephone, Antinous x Penelope, Antinous x Odysseus, Telemachus x Hermes, Eurylochus x Zeus
+ɪᴡᴄ/ɪᴡᴇᴄ﹕BunnyTeeth, RoyalTeeth, GummiJester, FunnyDoll, BunnyDoll
+
+ᴅɴɪ﹕Jax x Zooble, Jax x Gangle, Kinger x the cast, Caine x the cast
+
+━━━━⊱🏛⊰━━━━
+
+ɪɴᴛ﹕OdyPen, CircPen, Amphisidon, Zeus x Hera, Ariadnysus, Circmes, Hera x Iris, Pallthena, Eurypheus, Callisto x Artemis, HelCass, AphroAres, Aphrothena, Menelen, Psalakantha x Ariadne x Dionysus, Persephonyx, PerseHadeNyx, TeleNausicaa, Patrochilles, Melinoë x Scylla (Hades), PerseHades, Psyche x Eros, Deidama x Phyrra, Pelops x Hippodamia
+
+ɪᴡᴄ/ɪᴡᴇᴄ﹕?
+
+ᴅɴɪ﹕Hermes x Ares, Poseidon x Hera, SharpWolf, Theseus x Ariadne, CircOdy, CalyOdy, Ganymedes x Zeus, Ganymedes x anyone, Hades x Demeter, Athena x Hepheastus, Athena x Hera, Demeter x Zeus, Demeter x Persephone, Zeus x Persephone, Antinous x Penelope, Antinous x Odysseus, Telemachus x Hermes, Eurylochus x Zeus
 
 ══════════════════
 
