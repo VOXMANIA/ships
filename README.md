@@ -66,11 +66,13 @@
 
 ━━━━⊱🏛⊰━━━━
 
-ɪɴᴛ﹕FunnyBunny, Caine x Moon, Kinger x Queenie, Zooble x Gangle, RibbitRabbit
+╭⊰  🎪 𝄪 ᴛᴀᴅᴄ  ⊱╮
 
-ɪᴡᴄ/ɪᴡᴇᴄ﹕BunnyTeeth, RoyalTeeth, GummiJester, FunnyDoll, BunnyDoll
+ɪɴᴛ﹕ꜰᴜɴɴʏʙᴜɴɴʏ, ᴄᴀɪɴᴇ x ᴍᴏᴏɴ, ᴋɪɴɢᴇʀ x Qᴜᴇᴇɴɪᴇ, ᴢᴏᴏʙʟᴇ x ɢᴀɴɢʟᴇ, ʀɪʙʙɪᴛʀᴀʙʙɪᴛ
 
-ᴅɴɪ﹕Jax x Zooble, Jax x Gangle, Kinger x the cast, Caine x the cast
+ɪᴡᴄ/ɪᴡᴇᴄ﹕ʙᴜɴɴʏᴛᴇᴇᴛʜ, ʀᴏʏᴀʟᴛᴇᴇᴛʜ, ɢᴜᴍᴍɪᴊᴇꜱᴛᴇʀ, ꜰᴜɴɴʏᴅᴏʟʟ, ʙᴜɴɴʏᴅᴏʟʟ
+
+ᴅɴɪ﹕ᴊᴀx x ᴢᴏᴏʙʟᴇ, ᴊᴀx x ɢᴀɴɢʟᴇ, ᴋɪɴɢᴇʀ x ᴛʜᴇ ᴄᴀꜱᴛ, ᴄᴀɪɴᴇ x ᴛʜᴇ ᴄᴀꜱᴛ
 
 ━━━━⊱🏛⊰━━━━
 
