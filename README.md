@@ -1,4 +1,4 @@
-<img width="669" height="893" alt="Image" src="https://github.com/user-attachments/assets/a830e305-1fcf-47cc-8eda-8f36ce8a774f" />
+<img width="720" height="675" alt="Image" src="https://github.com/user-attachments/assets/ecc9cd4c-37a8-44f8-907b-c39c92a308fc" />
 
 ══════════════════
 
@@ -86,4 +86,4 @@
 
 ══════════════════
 
-<img width="720" height="714" alt="Image" src="https://github.com/user-attachments/assets/834ad537-1b3d-4ecb-b266-9d4f4c3ae990" />
+<img width="720" height="749" alt="Image" src="https://github.com/user-attachments/assets/03c6672f-b92d-45a8-84fc-c0da846cc35a" />
